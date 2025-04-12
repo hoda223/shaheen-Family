@@ -1,2 +1,4 @@
 # shaheen-Family
 I am a deaf Palestinian living in the besieged Gaza Strip. I am married and deaf. My husband is deaf, and I have four children
+Donate to me on this website, or help spread this link. Ask your relatives and friends to share the link on your accounts and social media platforms. We are collecting donations to leave Gaza with my children, for peace. I hope to reach my goal. Stand with us and support us.
+I am Hoda, deaf and mute, living in Gaza. I am married to a deaf and mute man. I have four children, one of them has a thyroid gland disease and vitiligo and needs treatment for the thyroid gland. The other one has a blood clot in her face and needs a face operation. I hope you will help my family and support us in these difficult times that we are living in an ongoing war. I hope you will donate to our campaign to help us fight hunger, me and my family in Gaza.
